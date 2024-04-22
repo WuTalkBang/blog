@@ -1,7 +1,6 @@
 ---
 title: "2024-4-23 Tue Topic: Books"
 date: 2024-04-22T22:05:38+08:00
-draft: true
 ---
 
 Here are some useful verbs, phrases, expressions, and sentences related to the topic of Books that can help improve English speaking skills:

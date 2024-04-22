@@ -1,7 +1,6 @@
 ---
 title: "2024-4-26 Fri Topic: Television"
 date: 2024-04-22T22:14:09+08:00
-draft: true
 ---
 
 Here are some useful verbs, phrases, expressions, and sentences related to the topic of television that can help improve English speaking skills:

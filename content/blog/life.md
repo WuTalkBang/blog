@@ -1,7 +1,6 @@
 ---
 title: "2024-4-25 Thu Topic: Life"
 date: 2024-04-22T22:12:46+08:00
-draft: true
 ---
 
 Here are some useful verbs, phrases, expressions, and sentences related to the topic of Life that can help improve English speaking skills:
