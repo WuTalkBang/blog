@@ -6,6 +6,7 @@ date: 2024-06-29T22:38:38+08:05
 # Sample
 In this 2-minute sample monologue for the IELTS speaking test part 2, I will describe a desired change to my local area:
 
+
 One change that I believe would significantly improve my local area is the development of more green spaces, such as parks, community gardens, and tree-lined streets. Urban areas often suffer from a lack of greenery, which can have a negative impact on the well-being of residents, as well as the overall aesthetic appeal of the neighborhood.
 
 Green spaces provide numerous benefits for both the environment and the people living in the area. They help to improve air quality by absorbing pollutants and producing oxygen, reduce urban heat island effects, and support local biodiversity by providing habitats for various plants and animals. Moreover, green spaces have been shown to have a positive impact on the mental and physical health of residents, promoting relaxation, exercise, and social interaction.
