@@ -1,5 +1,5 @@
 ---
-title: "2024-7-17 Topic: the topic is be a specialist or be a generalist"
+title: "2024-7-17 Topic: Be a specialist or be a generalist"
 date: 2024-07-14T22:32:38+08:05
 ---
 
